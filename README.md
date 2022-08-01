@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **thakurtrishank@gmail.coom**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1t7TD0PgOZh_dSXphdN7GOJBLmAM4M6RN/view?usp=sharing](https://drive.google.com/file/d/1t7TD0PgOZh_dSXphdN7GOJBLmAM4M6RN/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1N-ToZJC5SDkj3KhFveqIadY_TiKQcSSr/view?usp=sharing](https://drive.google.com/file/d/1t7TD0PgOZh_dSXphdN7GOJBLmAM4M6RN/view?usp=sharing)
 
 - ⚡ Fun fact **I think Iam Funny**
 
